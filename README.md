@@ -13,8 +13,11 @@ Festive pack is a mod that tries to integrate sesonal events into tld.For now I 
 
 It will be updated once mod component comes for 1.78
 
-https://ibb.co/Lxt5svg
-https://ibb.co/hcbQyCj
-https://ibb.co/3y3mmXy
-https://ibb.co/ZNS09L3
+https://imgur.com/QRNXayp
+
+https://imgur.com/A4ppMHw
+
+https://imgur.com/g071rPC
+
+https://imgur.com/os4tlD6
 
